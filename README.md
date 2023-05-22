@@ -1,2 +1,1 @@
-No code No pain
-experiment with amend
+ya obyazatelno vizhivy
